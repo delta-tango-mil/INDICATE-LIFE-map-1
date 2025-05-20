@@ -1,1 +1,2 @@
-# INDICATE-LIFE-map-1
+# INDICATE LIFE
+# Case studies map - Italy
